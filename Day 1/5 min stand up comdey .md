@@ -12,7 +12,7 @@
 
 
 
-**ChatGpt Link :** [ChatGPT Link] (https://chatgpt.com/share/6847feec-c090-800b-bf81-e2b1ffabca9c)
+**ChatGpt Link :** (https://chatgpt.com/share/6847feec-c090-800b-bf81-e2b1ffabca9c)
 
 
 
