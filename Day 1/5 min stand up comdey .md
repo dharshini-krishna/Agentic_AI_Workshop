@@ -10,7 +10,11 @@
 
 #        Format: 5-Minute Stand-Up Comedy Set
 
-                           [chat link: ](https://chatgpt.com/share/6847feec-c090-800b-bf81-e2b1ffabca9c)
+
+
+**ChatGpt Link :** [ChatGPT Link] (https://chatgpt.com/share/6847feec-c090-800b-bf81-e2b1ffabca9c)
+
+
 
 # Stand-Up Comedy Assignment 
 
